@@ -1,0 +1,1 @@
+<a target="_blank" href="https://wordwall.net/pt/resource/102651008/confra-ex%C3%A9rcitos-2025?ref=embed-image"><img src="https://screens.cdn.wordwall.net/200/8ffe291af00b40a6ba436a6695824e5e_0" width="200" height="150" style="border:1px solid grey;display:block" /><span>confra exércitos 2025</span></a>
